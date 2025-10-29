@@ -1,1 +1,1 @@
-![Image Alt]([[image_url](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/f054454944fb8f222c24842873da06b8b4502e77/CER2920100%20(1).png)](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/CER2920100%20(1).png?raw=true))
+![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/CER2920100%20(1).png?raw=true)
