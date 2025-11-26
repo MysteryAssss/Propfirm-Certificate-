@@ -6,4 +6,6 @@
 ![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/program-achievement-1761771253380.png?raw=true)
 ![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/Screenshot%202025-10-30%20040519.png?raw=true)
 ![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/png.png?raw=true)
+![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/USR2593431-Payout%20certificate.png?raw=true)
+![Image Alt](https://github.com/MysteryAssss/Propfirm-Certificate-/blob/main/Screenshot%202025-11-26%20023209.png?raw=true)
 
